@@ -1,2 +1,2 @@
-"# decentralized.app"
-"# decentralized.app"
+# this is new to me i treied by best with the help of yt videos
+#thanks
